@@ -1,4 +1,4 @@
-# Staying in St Andrews
+# Visiting/Staying in St Andrews
 
 If you are visiting St Andrews, whether for a short research visit, a conference, or a longer-term stay, organising travel, accommodation, and day-to-day logistics can be confusing. This page brings together useful resources and advice to help make your arrival and stay as straightforward as possible.
 
